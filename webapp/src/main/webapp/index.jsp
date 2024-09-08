@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and goa
+Hello, Welcome to great leaders from Bangalore and ooty
