@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and pune,vizag
+Hello, Welcome to great leaders from Bangalore and pune
